@@ -5,4 +5,5 @@ Im studying at the University of Information Technology
 
 My specialization is computer science
 
-Nice to meet all of u :>
+Nice to meet  u :>
+
