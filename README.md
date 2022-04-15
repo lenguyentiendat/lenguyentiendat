@@ -1,7 +1,7 @@
 ### Hi there 👋
 My name is Le Nguyen Tien Dat
 
-Im studying at the University of Information Technology
+Im a sophomore  at the University of Information Technology - VNUHCM
 
 My specialization is computer science
 
